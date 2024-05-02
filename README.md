@@ -7,3 +7,5 @@ https://gofile.io/d/oySHM3
 https://drive.google.com/file/d/1hf3dy47J3Hf-_eaUTcptwjUat14KUhX-/view?usp=sharing
 
 LIKE PLS 
+
+GO to issues for help or ask for more DB
