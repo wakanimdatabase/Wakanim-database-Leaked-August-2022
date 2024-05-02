@@ -2,7 +2,7 @@
 
 
 https://link-hub.net/1170476/drive-google-wakanim
-                                                         YOU CAN SKIP AD I'm NOT A SHITTY DUDE I TEST 
+                                  YOU CAN SKIP AD I'm NOT A SHITTY DUDE I TEST 
 https://direct-link.net/1170476/db
 
 LIKE PLS 
