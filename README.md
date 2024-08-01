@@ -17,3 +17,15 @@ GO to issues for help or ask for more DB
 
 
 OTHER LEAK GONNA COMMEEEE !!!!!!!!!!!!!!
+
+Wakanim data base leak/ Wakanim breach / wakanim data breach 
+#WakanimDatabaseLeak
+#WakanimBreach
+#WakanimDataBreach
+#WakanimLeak
+#WakanimSecurityBreach
+#WakanimDataSecurity
+#WakanimHack
+#WakanimCyberAttack
+#WakanimPrivacyBreach
+#WakanimDataLeakage
